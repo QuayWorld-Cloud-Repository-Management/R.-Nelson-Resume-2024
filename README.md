@@ -25,6 +25,13 @@ With my diverse working experience, I am seeking roles related to:
 
 # 
 
+# Completed Courses
+
+## MongoDB University
+1.	MongoDB Database Administrator (DBA) - August 2023
+
+# 
+
 
 # Professional Experience 
 
